@@ -11,4 +11,6 @@
                                          ███    ███
 
 ```
- ᴛʜᴇ ᴘʀᴇꜰɪх "ѕɪʀ" ᴄᴏᴍᴇѕ ꜰʀᴏᴍ ᴛʜᴇ ᴍᴇᴅɪᴇᴠᴀʟ ᴏʟᴅ ꜰʀᴇɴᴄʜ ᴛᴇʀᴍ "ѕɪʀᴇ," ᴍᴇᴀɴɪɴɢ "ʟᴏʀᴅ" ᴏʀ "ᴍᴀѕᴛᴇʀ." ɪᴛ ᴏʀɪɢɪɴᴀᴛᴇᴅ ꜰʀᴏᴍ ᴛʜᴇ ʟᴀᴛɪɴ "ѕᴇɴɪᴏʀ," ᴡʜɪᴄʜ ᴅᴇɴᴏᴛᴇᴅ ѕᴏᴍᴇᴏɴᴇ ᴏꜰ ɪᴍᴘᴏʀᴛᴀɴᴄᴇ ᴏʀ ʜɪɢʜᴇʀ ѕᴏᴄɪᴀʟ ѕᴛᴀᴛᴜѕ. ᴏᴠᴇʀ ᴛɪᴍᴇ, "ѕɪʀᴇ" ᴇᴠᴏʟᴠᴇᴅ ɪɴᴛᴏ "ѕɪʀ" ᴀɴᴅ ᴡᴀѕ ᴀᴅᴏᴘᴛᴇᴅ ɪɴᴛᴏ ᴇɴɢʟɪѕʜ ꜰʀᴏᴍ ɴᴏʀᴍᴀɴ ɪɴꜰʟᴜᴇɴᴄᴇ ᴀꜰᴛᴇʀ ᴛʜᴇ ɴᴏʀᴍᴀɴ ᴄᴏɴǫᴜᴇѕᴛ ᴏꜰ ᴏɴᴇ ᴛʜᴏᴜѕᴀɴᴅ ѕɪхᴛʏ ѕɪх. ᴛᴏᴅᴀʏ, "ѕɪʀ" ɪѕ ᴜѕᴇᴅ ᴀѕ ᴀ ᴛɪᴛʟᴇ ᴏꜰ ᴋɴɪɢʜᴛʜᴏᴏᴅ ʙᴇѕᴛᴏᴡᴇᴅ ʙʏ ᴛʜᴇ ʙʀɪᴛɪѕʜ ᴍᴏɴᴀʀᴄʜ ᴛᴏ ɪɴᴅɪᴠɪᴅᴜᴀʟѕ ʀᴇᴄᴏɢɴɪᴢᴇᴅ ꜰᴏʀ ᴇхᴄᴇᴘᴛɪᴏɴᴀʟ ѕᴇʀᴠɪᴄᴇ ᴛᴏ ᴛʜᴇ ɴᴀᴛɪᴏɴ.
+ the prefix "sir" comes from the medieval old french term "sire," meaning "lord" or "master." it originated from the latin "senior," which denoted someone of importance or higher social status. over time, "sire" evolved into "sir" and was adopted into english from norman influence after the norman conquest of 1066. today, "sir" is used as a title of knighthood bestowed by the british monarch to individuals recognized for exceptional service to the nation.
+
+ ━━━━⊱⋆⊰━━━━
